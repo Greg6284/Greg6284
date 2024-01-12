@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Greg6284!
+- 👀 I’m interested in gaming ,programing and volleyball.
+- 🌱 I’m currently learning python and c++.
+- 😄 Pronouns: He, His.
+- ⚡ Fun fact: I speak Polish and English.
